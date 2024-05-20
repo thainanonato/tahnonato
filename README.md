@@ -9,3 +9,4 @@ Meu nome é Thainá Nonato
 Você pode entrar em contato comigo 📫
 
 00001079978227sp@al.educacao.sp.gov.br
+@thainanonato
