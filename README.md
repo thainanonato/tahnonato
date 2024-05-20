@@ -1,4 +1,5 @@
 **Boas vindas ao meu perfil** 💙💙
+
 Meu nome é Thainá Nonato
 
 - Estou estudando na [Alura](https:\\www.alura.com.br)
